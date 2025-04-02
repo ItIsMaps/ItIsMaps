@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning about technological innovations and the effect they have on the efficiency of everyday life.
 - 🌱 I’m currently learning Computer Science
 - 💞️ I’m looking to collaborate on many many things
-- 📫 How to reach me mapulamphalo01gmail.com
+- 📫 How to reach me mapulamphalo01@gmail.com
 - 😄 Pronouns: her/she
 - ⚡ Fun fact: I am multilingual.
 
